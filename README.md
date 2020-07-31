@@ -1,4 +1,16 @@
-### Hi there 👋
+# bluucaterpilla ಠᴗಠ
+
+**_Welcome_**
+
+---
+
+(•̀ᴗ•́)و ̑̑  : <https://bluucaterpilla.github.io/>
+
+---
+
+| ʕ•ᴥ•ʔ | & | ฅ^•ﻌ•^ฅ | 
+
+---
 
 <!--
 **bluucaterpilla/bluucaterpilla** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
