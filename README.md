@@ -9,7 +9,7 @@
 
 ---
 
-`(•̀ᴗ•́)و ̑̑ ` : <https://bluucaterpilla.github.io/>
+<h2><samp>(•̀ᴗ•́)و ̑̑</samp></h2> : <https://bluucaterpilla.github.io/>
 
 ---
 <div align="center">
